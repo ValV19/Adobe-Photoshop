@@ -1,1 +1,1 @@
-# Adobe-Photosop
+# Adobe-Photoshop
